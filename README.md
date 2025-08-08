@@ -16,7 +16,7 @@ hfbvpsBVPISdnv[iuS{Vn[IOUSN{VOD
 vsndincvolASIpdcvIYSBdCVISDIcv
 cjnosnovcnsovnosnopvnsopdicvp
 ljdfunvp;ANDF{ivu[SNV]Ovf
-gbsinfpvbiaun[prfvn[a
+gbsinfpvbiaun[prfvn[ad
 cvkjsdkcvnlSKDJcvnpKJSDC:SDc
 rbhtg;jbao;g[ermgoma]Gf
 vkjmodfjnvUJNIPVn[ISUND{cv
