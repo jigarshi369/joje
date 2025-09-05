@@ -19,8 +19,7 @@ ljdfunvp;ANDF{ivu[SNV]Ovfegcv
 gbsinfpvbiaun[prfvn[adgtgf
 rbhtg;jbao;g[ermgoma]Gfghh
 vkjmodfjnvUJNIPVn[ISUND{cvg
-fvdfvhjsdivciksdviosdvuosff
-fvdkjvhl;ZDFHvp;kJS:KvSVr
+fvdfvhjsdivciksdviosdvuosffg
 vksdfjvhnp;SDUNPcv;iUJNSDcfg
 ;jkvb{KLJF[vjS{Jv[JSD8fff
 fsdkjvlskjvlksd;vc
