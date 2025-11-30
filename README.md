@@ -8,11 +8,11 @@ l;vm;lksdfmv;oa'lvn'AOv'ASDFv
 kvkdfbvievkljsivbolsan cvlabnsoed
 voinascmaoncpin:kjCNPIN{dc'g
 jk ;zavboA:vkln a'KLJBNv;oNERVhg
-bmodivbjiourlwekm;'vlmslncuiywsgfovaLjgf
+bmodivbjiourlwekm;'vlmslncuiywsgfovaLjgft
 FVJNSDLVNOLSNDLKCV;SPDNV;CKSDfg
 vbiksdnosn[d'cvAMNS{OVc'sgff
 jvnousduivsajkdhcb jhgsvuyfvskljndlckfftf
-hfbvpsBVPISdnv[iuS{Vn[IOUSN{VODgjg
+hfbvpsBVPISdnv[iuS{Vn[IOUSN{VODgjgg
 vsndincvolASIpdcvIYSBdCVISDIcvgttftgfh
 cjnosnovcnsovnosnopvnsopdicvpfkfteffkgtv 
 ljdfunvp;ANDF{ivu[SNV]Ovfegcvffgg
