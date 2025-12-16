@@ -19,7 +19,7 @@ ljdfunvp;ANDF{ivu[SNV]Ovfegcvffggngg
 gbsinfpvbiaun[prfvn[adgtgfhgtiftfffhgfrf
 rbhtg;jbao;g[ermgoma]Gfghhfrvffujhitfuikgfg
 vkjmodfjnvUJNIPVn[ISUND{cvgrfrte3gg
-fvdfvhjsdivciksdviosdvuosffgfbnrfugtg
+fvdfvhjsdivciksdviosdvuosffgfbnrfugtgg
 vksdfjvhnp;SDUNPcv;iUJNSDcfgdggvf
 ;jkvb{KLJF[vjS{Jv[JSD8fffyhjtgfgrffg
 fsdkjvlskjvlksd;vcfgg
