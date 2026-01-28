@@ -17,7 +17,7 @@ vsndincvolASIpdcvIYSBdCVISDIcvgttftgfhfgff
 cjnosnovcnsovnosnopvnsopdicvpfkfteffkgtv 
 ljdfunvp;ANDF{ivu[SNV]Ovfegcvffggnggghfg
 gbsinfpvbiaun[prfvn[adgtgfhgtiftfffhgfrffyf
-rbhtg;jbao;g[ermgoma]Gfghhfrvffujhitfuikgfg
+rbhtg;jbao;g[ermgoma]Gfghhfrvffujhitfuikgfgf
 vkjmodfjnvUJNIPVn[ISUND{cvgrfrte3ggfg
 fvdfvhjsdivciksdviosdvuosffgfbnrfugtgg
 vksdfjvhnp;SDUNPcv;iUJNSDcfgdggvfh
