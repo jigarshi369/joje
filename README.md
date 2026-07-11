@@ -6,7 +6,7 @@ vuzdpivupIV;jSNIPUDVpSJDN{CVf
 ;jf;vlZJKNF{vjNS{DFOvun[OSDFNvl'fgbgf
 l;vm;lksdfmv;oa'lvn'AOv'ASDFvf
 kvkdfbvievkljsivbolsan cvlabnsoedg
-voinascmaoncpin:kjCNPIN{dc'gvfg
+voinascmaoncpin:kjCNPIN{dc'gvfgb
 jk ;zavboA:vkln a'KLJBNv;oNERVhgrg
 bmodivbjiourlwekm;'vlmslncuiywsgfovaLjgftggfffvv
 FVJNSDLVNOLSNDLKCV;SPDNV;CKSDfgfgvfffb
