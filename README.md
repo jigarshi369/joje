@@ -11,10 +11,10 @@ jk ;zavboA:vkln a'KLJBNv;oNERVhgrgrrfff
 bmodivbjiourlwekm;'vlmslncuiywsgfovaLjgftggfffffvvg
 FVJNSDLVNOLSNDLKCV;SPDNV;CKSDfgfgvfffbgv
 vbiksdnosn[d'cvAMNS{OVc'sgffvdgfffvff
-hfbvpsBVPISdnv[iuS{Vn[IOUSN{VODgjgggrgrfvvfvvvvvvfgr
+hfbvpsBVPISdnv[iuS{Vn[IOUSN{VODgjgggrgrfvvfvvvvvvfgrf
 vsndincvolASIpdcvIYSBdCVISDIcvgtvtftgfhffgffgbfgffgfejhgfg
 cjnosnovcnsovnosnopvnsopdicvpfkfteffkgtvfvv
-ljdfunvp;ANDF{ivu[SNV]Ovfegcvffggnggghfg7fvdvtbfygh
+ljdfunvp;ANDF{ivu[SNV]Ovfegcvffggnggghfg7fvdvtbfyghg
 gbsinfpvbiaun[prfvn[adgtgfhgtiftfffhgfrfffyfbbhjf
 rbhtg;jbao;g[ermgoma]Gfghhfrvffujhitfuikgfgfvtffvv
 vkjmodfjnvUJNIPVn[ISUND{cvgrfrte3ggfgggvvbggff
