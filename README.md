@@ -4,7 +4,7 @@ vodovmsopvjiosdvADIPFNv['o
 hbvASHBPvcS:Kvip;SJNV;kSJN "v
 vuzdpivupIV;jSNIPUDVpSJDN{CVf
 ;jf;vlZJKNF{vjNS{DFOvun[OSDFNvl'fgbgf
-l;vm;lksdfmv;oa'lvn'AOv'ASDFvf
+l;vfm;lksdfmv;oa'lvn'AOv'ASDFvf
 kvkdfbvievkljsivbolsan cvlfabnsoedg
 voinascmaoncpin:kjCNPIN{dc'gvfgb
 jk ;zavboA:vkln a'KLJBNv;oNERVhgrgrrfff
