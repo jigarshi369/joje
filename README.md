@@ -10,7 +10,7 @@ voinascmaoncpin:kjCNPIN{dc'gvfgb
 jk ;zavboA:vkln a'KLJBNv;oNERVhgrgrrfff
 bmodivbjiourlwekm;'vlmslncuiywsgfovaLjgftggfffffvvg
 FVJNSDLVNOLSNDLKCV;SPDNV;CKSDfgfgvfffbgv
-vbiksdnosn[d'cvAMNS{OVc'sgffvdgfffvff
+vbiksdnosn[d'cvAMNS{OVfc'sgffvdgfffvff
 hfbvpsBVPISdnv[iuS{Vn[IOUSN{VODgjgggrgrfvvfvvvvvvfgrf
 vsndincvolASIpdcvIYSBdCVIfDIcvgtvtftgfhffgffgbfgffgfejhgfg
 cjnosnovcnsovnosnopvnsopdicvpfkfteffkgtvfvv
