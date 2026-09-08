@@ -3,7 +3,7 @@ joje
 vodovmsopvjiosdvADIPFNv['o
 hbvASHBPvcS:Kvip;SJNV;kSJN "v
 vuzdpivupIV;jSNIPUDVpSJDN{CVf
-;jf;vlZJKNF{vjNS{DFOvun[OSDFNvl'fgbgf
+;jf;vlZJKNF{vjNS{DFOvun[ObSDFNvl'fgbgf
 l;vfm;lksdfmv;oa'lvn'AOv'ASDFvf
 kvkdfbvievkljsivbolsan cvlfabnsoedg
 voinascmaoncpin:kjCNPIN{dc'gvfgbf
