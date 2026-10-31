@@ -5,7 +5,7 @@ hbvASHBPvcS:Kvip;SJNV;kSJN "v
 vuzdpivupIV;jSNIPUDVpSJDN{CVf
 ;jf;vlZJKNF{vjNS{DFOvun[ObSDFNvl'fgbgf
 l;vfm;lksdfmv;oa'lvn'AOv'ASDFvff
-kvkdfbvievkljsivbolsan cvlfabnsoedg
+kvkdfbvievkljsivbolsan cvvlfabnsoedg
 voinascmaoncpin:kjCNPIN{dc'gvvfgbfv
 jk ;zavboAf:vkln a'KvLJBNv;oNgERVhgrgrrfffGc
 bmodivbjiourlwekm;'vlmslncfuviywvsgfovaLjgftvggfffffvvg
